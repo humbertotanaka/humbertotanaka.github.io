@@ -1,1 +1,0 @@
-# humbertotanaka.github.io
